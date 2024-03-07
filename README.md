@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chnishitha
+- 👋 Hi, I’m @chnishitha , You can call me Nishi
 - 👀 I’m interested in Design, coding and business
 - 🌱 I’m currently learning stuff focused around problem solving
 - 💞️ I’m looking to collaborate on anything
